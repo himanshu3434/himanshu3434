@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://himanshuyadav.vercel.app/](https://himanshuyadav.vercel.app/)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-m2QcTr4E-9hJWll-hVOMO7hxYG941LY/view](https://drive.google.com/file/d/1-m2QcTr4E-9hJWll-hVOMO7hxYG941LY/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1-m2QcTr4E-9hJWll-hVOMO7hxYG941LY/view](https://drive.google.com/file/d/1ANgR2d6_vvs9ZhSCa818b1kQ5QcJf4_M/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
